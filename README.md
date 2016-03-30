@@ -1,2 +1,2 @@
 # gitskills
-Ss1,myob
+Ss1,mdddfyob
