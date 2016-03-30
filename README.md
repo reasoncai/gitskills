@@ -1,2 +1,2 @@
 # gitskills
-Ss1,mdddfyob
+Ss1,mddddndnvaowef:fyob
